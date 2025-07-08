@@ -1,1 +1,1 @@
-[MyProfile]([https://url-tujuan.com](https://webprofilemohammadbayanaldina.infy.uk)
+[MyProfile](https://webprofilemohammadbayanaldina.infy.uk)
